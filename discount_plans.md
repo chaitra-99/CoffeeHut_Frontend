@@ -1,1 +1,1 @@
-50% off on purchase above 5999
+50% off for CoffeeHut_wallet payment methods
